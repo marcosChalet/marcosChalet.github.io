@@ -1,1 +1,1 @@
-Meu blog!
+Estará funcionando em breve!
