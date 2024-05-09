@@ -1,1 +1,1 @@
-Estará funcionando em breve!
+Teremos posts em breve!
